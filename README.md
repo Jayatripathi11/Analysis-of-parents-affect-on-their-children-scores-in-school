@@ -1,0 +1,1 @@
+# Analysis-of-parents-affect-on-their-children-scores-in-school
